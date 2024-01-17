@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+https://www.beautiful.ai/-NnzE8mB8yksNKeY7Wiv/1
+https://replit.com/@MollyBeach/xmcbgdevs
 <!--
 
 **Here are some ideas to get you started:**
